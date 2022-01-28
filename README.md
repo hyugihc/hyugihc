@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @hyugihc
+- 👋 Hi, I’m *******
 - 👀 I’m interested in Artificial Intellegence, 
 - 🌱 I’m currently learning on internet
 - 💞️ I’m looking to collaborate on internet
